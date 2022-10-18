@@ -1,5 +1,5 @@
-Obrigada Por acessar,
+## Obrigada Por acessar,
 
-Perfil Linkedin
+- Perfil Linkedin
 
 https://www.linkedin.com/in/renata-reis-619b8011a
